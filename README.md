@@ -1,0 +1,4 @@
+- 🐎🌬️.. @kraven-daemon , located somewhere in your background jobs.
+- I’m interested in linux, text processing, compilers, langages.
+- I’m currently learning more about web related technologies and graphics..
+- mail : kraven-d@pm.me
